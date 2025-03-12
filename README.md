@@ -7,7 +7,7 @@
 ## 📞 Contacto
 - **Teléfono:** +57 3113538060
 - **Email:** [karolfrancomoreno27@gmail.com
-- **LinkedIn:** [linkedin.com/in/tuusuario](https://linkedin.com/in/tuusuario)
+- **LinkedIn:** [https://www.linkedin.com/in/carol-franco-7029a8355/](https://www.linkedin.com/in/carol-franco-7029a8355/)
 
 ## 🏢 Experiencia Laboral
 ### **Empresa XYZ** _(2020 - Actualidad)_
